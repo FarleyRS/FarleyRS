@@ -1,2 +1,2 @@
 - 👋 Olá, 🅵🅰🆁🅻🅴🆈 aqui
-- 🌱 Atualmente estou cursando Sistemas de Informação 7° período
+- 🌱 Atualmente estou cursando Sistemas de Informação 8° período
